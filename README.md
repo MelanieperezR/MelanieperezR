@@ -1,6 +1,8 @@
 ## Hi, I'm Melanie 👋  
 ## I turn complex data into strategic decisions that drive business performance and organizational clarity
 
+<img width="1536" height="1024" alt="banner Melanie" src="https://github.com/user-attachments/assets/1f07ed11-b733-40e2-b81f-3b588b8c77dc" />
+
 ## About me
 
 Industrial Engineer with 6+ years of experience in Analytics & Business Intelligence.
