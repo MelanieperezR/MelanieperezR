@@ -1,6 +1,6 @@
 ## Hi, I'm Melanie 👋  
-## I turn complex data into strategic decisions that drive business performance and organizational clarity
-![Blue and Orange Playful Retro Hippie Freelance Portfolio Presentation](https://github.com/user-attachments/assets/d09eab54-c6a2-4e28-95c2-b07b9d5d4bfe)
+## I turn complex data into strategic decisions that drive business decisions
+![Blue and Orange Playful Retro Hippie Freelance Portfolio Presentation](https://github.com/user-attachments/assets/8b3d9b2d-506f-49e0-ab9e-d0d3f1ccc2ae)
 
 ## About me
 
