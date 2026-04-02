@@ -1,7 +1,7 @@
 ## Hi, I'm Melanie 👋  
 ## I turn complex data into strategic decisions that drive business performance and organizational clarity
 
-<img width="1532" height="332" alt="banner Melanie" src="https://github.com/user-attachments/assets/815f8daf-1a8a-493f-9199-e09108b5f2b1" />
+![Blue and Orange Playful Retro Hippie Freelance Portfolio Presentation](https://github.com/user-attachments/assets/1a74426f-297e-473a-b752-b219dac538fb)
 
 ## About me
 
